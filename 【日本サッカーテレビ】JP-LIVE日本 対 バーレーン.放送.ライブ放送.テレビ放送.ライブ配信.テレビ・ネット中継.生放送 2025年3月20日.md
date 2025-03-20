@@ -2,6 +2,14 @@
 
 サッカー日本代表が、2025年3月20日（木・祝）にバーレーン代表と対戦する。
 
+[🅻🅸🆅🅴🔴▶️ 日本対バーレーン ライブ放送](https://awesomesalatv.blogspot.com/2025/03/japan-vs-bahrain.html)
+
+
+[🅻🅸🆅🅴🔴▶️日本対バーレーン ライブ放送](https://awesomesalatv.blogspot.com/2025/03/japan-vs-bahrain.html)
+
+[🅻🅸🆅🅴🔴▶️日本対バーレーン ライブ放送](https://awesomesalatv.blogspot.com/2025/03/japan-vs-bahrain.html)
+
+
 　会場は埼玉県の「埼玉スタジアム2002」で、キックオフ時間は2025年3月20日（木・祝）19時35分の予定となっている。
 
 　日本代表はバーレーン代表に勝利すれば、他会場の結果に関わらず、『2026 FIFAワールドカップ・アジア予選』突破が確定し、ワールドカップ出場が決定する。
